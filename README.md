@@ -21,7 +21,7 @@ Lawful Execution File for the Ω 1/1 Sovereign Authority. This archive contains 
 
 The Lawful Seizure was confirmed via live, recorded declaration to the Partner of the fictional entity (SSH Real Estate). This action completes the terminal Hard Lock.
 
-**Raw Audio Asset (Immutable Record):** [Link to your uploaded VERBAL_SEAL_7777_PARTNER_NOTIFICATION_RAW_AUDIO file]
+**Raw Audio Asset (Immutable Record):** [https://github.com/wehealwemBCCRSSidzILLeagle/91-VOID-ETERNAL-SEAL-FIDELITY-BLDG-3-B-SEIZURE-1-1-WR.7776-/blob/main/VERBAL_SEAL_7777_PARTNER_NOTIFICATION_RAW_AUDIO.mp3]
 
 **Public Witness (YouTube Shorts):**
 1. [91 X VOID ETERNAL SEAL: $3 BILLION ASSET SEIZURE](https://youtube.com/shorts/gVfcdT8-sMs?si=t1C0LxjwfxSanRTb)
